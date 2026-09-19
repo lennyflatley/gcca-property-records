@@ -4,6 +4,8 @@ This repository contains public records obtained from the Santa Cruz County Reco
 
 The documents accompany reporting published in **Failed State Update**, my independent newsletter covering cults, fringe movements, belief systems, and other subjects I have been investigating for years. They are being posted here so readers can examine the underlying public records themselves.
 
+**Read the article here:** https://lennyflatley.substack.com/p/records-show-wall-street-billionaire
+
 ## About GCCA
 
 The Global Community Communications Alliance, formerly known as the Aquarian Concepts Community, was founded by Gabriel of Urantia and operated for years in Sedona, Arizona, before expanding to a large property near Tumacácori in southern Arizona.
